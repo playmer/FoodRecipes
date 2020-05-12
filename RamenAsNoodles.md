@@ -4,17 +4,17 @@ Recipe Originally based on what my mom made for me as a kid.
 
 ## Ingredients:
 
-1 Pack of Preferred Ramen Noodle Pack. (I recommend Maruchan Roast Chicken or Maruchan Mushroom Chicken)
-1/2 tbsp Butter (For Noodles)
-Optional: Chili Oil
-Optional: 1/2 tbsp Butter (For Optional Stuff)
-Optional: Corn (However much you want, I usually use about 1/3 of a can.)
-Optional: Onion
-Optional: 12oz Can of Chunked Chicken (I use Kirkland brand)
-Optional For Chicken: Onion Powder
-Optional For Chicken: Garlic Powder
-Optional For Chicken: Ginger Powder
-Optional: 1 Egg
+- 1 Pack of Preferred Ramen Noodle Pack. (I recommend Maruchan Roast Chicken or Maruchan Mushroom Chicken)
+- 1/2 tbsp Butter (For Noodles)
+- Optional: Chili Oil
+- Optional: 1/2 tbsp Butter (For Optional Stuff)
+- Optional: Corn (However much you want, I usually use about 1/3 of a can.)
+- Optional: Onion
+- Optional: 12oz Can of Chunked Chicken (I use Kirkland brand)
+- Optional For Chicken: Onion Powder
+- Optional For Chicken: Garlic Powder
+- Optional For Chicken: Ginger Powder
+- Optional: 1 Egg
 
 ## Directions
 
